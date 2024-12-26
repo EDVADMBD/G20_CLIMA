@@ -14,7 +14,7 @@ O G20, que representa cerca de 85% do PIB global e mais de 75% das emissões glo
 
 # Capítulo 3: O Impacto do Acordo Histórico
 
-Durante o encontro, os países participantes chegaram a um acordo histórico: reduzir as emissões de CO₂ globalmente para metade até 2035, com metas estratégicas para 2028 e 2030. Para alcançar essa meta, os líderes concordaram em adotar políticas mais direcionadas de energia limpa, transição para veículos elétricos, investimentos em tecnologias de captura de carbono e florestamento. O acordo também incluiu a criação de um fundo para apoiar os países no desenvolvimento na adaptação às mudanças climáticas, garantindo que uma transição para uma economia de baixo carbono fosse justa para todos.
+Durante o encontro, os países participantes chegaram a um acordo histórico: reduzir as emissões de CO₂ globalmente para metade até 2035, com metas estratégicas para 2028 e 2030. Para alcançar essa meta, os líderes concordaram em adotar políticas mais direcionadas de energia limpa, transição para veículos elétricos, investimentos em tecnologias de captura de carbono e reflorestamento. O acordo também incluiu a criação de um fundo para apoiar os países no desenvolvimento na adaptação às mudanças climáticas, garantindo que uma transição para uma economia de baixo carbono fosse justa para todos.
 
 # Capítulo 4: Desafios e Conquistas
 
