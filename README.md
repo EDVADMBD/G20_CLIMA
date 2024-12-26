@@ -24,7 +24,7 @@ No entanto, o encontro do G20 de 2024 também revelou uma grande mudança nas pr
 
 # Capítulo 5: O Futuro: Uma Jornada Coletiva
 
-O encontro do G20 de 2024 foi mais do que uma reunião de líderes – foi um momento de reflexão sobre o futuro que queremos deixar para as próximas gerações. As metas de redução de CO₂ eram condicionais, mas a verdadeira tarefa estava apenas começando. O compromisso de reforçar no encontro não se tratou apenas de uma luta contra as emissões de CO₂, mas de um esforço coletivo para salvar o planeta de um colapso irreversível. A jornada continua, mas a chama da esperança foi acesa em 2024.
+O encontro do G20 de 2024 foi mais do que uma reunião de líderes – foi um momento de reflexão sobre o futuro que queremos deixar para as próximas gerações. As metas de redução de CO₂ eram condicionais, mas a verdadeira tarefa estava apenas começando. O compromisso de reforçar no  encontro não se tratou apenas de uma luta contra as emissões de CO₂, mas de um esforço coletivo para salvar o planeta de um colapso irreversível. A jornada continua, mas a chama da esperança foi acesa em 2024.
 
 E assim, o encontro do G20, em meio à discussão e desafios, deixou claro: a luta contra as emissões de CO₂ não é uma responsabilidade de poucos, mas de todos. O futuro do planeta depende da ação coordenada de todos os países, empresas e cidadãos. E juntos, podemos garantir que as próximas gerações herdem um mundo mais equilibrado e sustentável.
 
