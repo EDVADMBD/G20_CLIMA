@@ -28,6 +28,8 @@ O encontro do G20 de 2024 foi mais do que uma reunião de líderes – foi um mo
 
 E assim, o encontro do G20, em meio à discussão e desafios, deixou claro: a luta contra as emissões de CO₂ não é uma responsabilidade de poucos, mas de todos. O futuro do planeta depende da ação coordenada de todos os países, empresas e cidadãos. E juntos, podemos garantir que as próximas gerações herdem um mundo mais equilibrado e sustentável.
 
+Veja o link: https://github.com/EDVADMBD/G20_CLIMA/blob/main/emiss%C3%B5es_de_di%C3%B3xido_de_carbono_(CO%E2%82%82)%20(1).ipynb
+
 
 
 
