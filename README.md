@@ -1,6 +1,7 @@
 # G20_CLIMA
 
-      ![image](https://github.com/user-attachments/assets/42d56852-d68f-4fbc-bc66-d5433fff7114)
+ ![image](https://github.com/user-attachments/assets/3a88e325-9036-409e-a2ab-252c909cad7b)
+
 
 
 # Storytelling: Emissões de CO₂ e o Encontro doS Paises do  G20.
