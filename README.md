@@ -1,6 +1,6 @@
 # G20_CLIMA
 
-              ![image](https://github.com/user-attachments/assets/3a88e325-9036-409e-a2ab-252c909cad7b)
+![image](https://github.com/user-attachments/assets/3a88e325-9036-409e-a2ab-252c909cad7b)
 
 
 
