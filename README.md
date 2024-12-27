@@ -1,5 +1,8 @@
 # G20_CLIMA
 
+![Uploading image.png…]()
+
+
 # Storytelling: Emissões de CO₂ e o Encontro doS Paises do  G20.
 
 No cenário global, a questão das emissões de dióxido de carbono (CO₂) continua sendo um dos maiores desafios ambientais. As mudanças climáticas, exacerbadas pelo aumento das emissões, têm consequências diretas para a vida no planeta. Nesse contexto, o G20 – um fórum internacional que reúne as 19 maiores economias do mundo e a União Europeia – tem se tornado um palco crucial para discutir ações globais que visam a redução das emissões de gases de efeito estufa.
